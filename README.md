@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @akijikarandolphyufenyuy
 - 👀 I’m interested in Developing my Tech Skills in the Software Domain
-- 🌱 I’m currently learning Software Engineering at the College of Technology University of buea cameroon
+- 🌱 I’m currently learning Software Engineering at the College of Technology University of Buea,Cameroon in Africa
 - 💞️ I’m looking to collaborate on the Software domain
 - 📫 How to reach me akijikarandolphyufenyuy@gmail.com
 - 😄 Pronouns: Randolph
